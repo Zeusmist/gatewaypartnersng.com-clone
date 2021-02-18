@@ -1,0 +1,1 @@
+"# gatewaypartnersng.com-clone" 
